@@ -1,1 +1,1 @@
-# rsschool-cv
+https://m000rat.github.io/rsschool-cv/cv
