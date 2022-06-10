@@ -43,6 +43,8 @@ Plekhanov Russian University of Economics, Moscow, Russian Federation
 
 ** ## SKILLS & EXPERTISE **
 
+
+* HTML, CSS, JS
 * Ability to work independently and under pressure
 * Among 50 best students on One National Test
 * Co-Founder of SEGi University College Graduate Club, SEGI Centurions
