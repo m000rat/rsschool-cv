@@ -5,7 +5,7 @@ dmuratn@gmail.com | +996 552 220 670
 Experienced specialist with interest in information technology seeking a position in a company where my skills and professional knowledge can be utilized
 
 ** ## EXPERIENCE
-Head of PIU, Vodokanal **, Kara-Balta, Kyrgyzstan (July 19 – Present)
+Head of PIU, Vodokanal **, Kara-Balta, Kyrgyzstan (July 19 – March 21)
 * Assist buyers and sellers of businesses in the buying and selling process
 * Marketing the business to prospective buyers
 * Coordinate negotiations and provide deal structuring advice
